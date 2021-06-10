@@ -1,1 +1,1 @@
-www.mayanbk.top
+mayanbk.top
